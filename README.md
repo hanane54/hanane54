@@ -8,5 +8,5 @@
 - 📫 How to reach me: 
 hanane59taouil@gmail.com
 - You can find me on:
-  - [LinkenIn](https://www.linkedin.com/in/hanane-t-811b6717a/)  
+  - [LinkedIn](https://www.linkedin.com/in/hanane-t-811b6717a/)  
   - [Facebook](https://www.facebook.com/profile.php?id=100070548649543)
