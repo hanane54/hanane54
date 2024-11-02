@@ -9,4 +9,3 @@
 hanane59taouil@gmail.com
 - You can find me on:
   - [LinkedIn](https://www.linkedin.com/in/hanane-t-811b6717a/)  
-  - [Facebook](https://www.facebook.com/profile.php?id=100070548649543)
